@@ -1,2 +1,0 @@
-# Manish-sehrawat-
-Student 
